@@ -12,6 +12,9 @@ MacKeeper Serial Number 2019 + Key (Keygen, License) Activation Code Generator a
 <a href = "http://apps4all.bid/file.php?fn=MacKeeper+Activator+(All+Editions)" target = "_self"> 
          <img src = "https://i.imgur.com/9MDhlZO.png" alt = "Nice" border = "0"/> 
       </a>
+         <p>
+                  NOTE : THE ACTIVATOR WORKS WITH ALL EDITIONS
+                  <p>
 <p>
 MacKeeper is utility software distributed by Kromtech Alliance. A controversial product, it has been accused of not performing as advertised and being difficult to fully uninstall. It is heavily promoted through aggressive advertising and affiliate marketing.
 <p>
